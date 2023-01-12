@@ -1,1 +1,1 @@
-Brat nqma readme tuka, nqma za kvo da ti pomagam
+Brat nqma readme tuka, nqma za kvo da ti pomagam , kur za levski
