@@ -1,0 +1,1 @@
+Brat nqma readme tuka, nqma za kvo da ti pomagam
